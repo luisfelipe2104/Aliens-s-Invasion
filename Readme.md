@@ -1,0 +1,1 @@
+Aliens Invasion is an incomparable fun and addictive shooting game. Wake up from your sweet dream. The aliens have invaded everywhere over the world.  As a survival, you must grasp your weapons to fight for survive.
